@@ -1,4 +1,4 @@
-### Actualmente me encuestro aprendiendo testing, algo que me apasiona!!  👋
+### Actualmente me encuentro aprendiendo testing 💻, algo que me apasiona!!!
 
 
 
